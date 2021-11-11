@@ -1,0 +1,2 @@
+# KInsman
+After joining Alibaba.com, overnight he got a German buyer which boosted up his confidence and in last 14 years he got many customer!! Mr M.M Aminur Rahman said. Now he is doing business with lots of reputed customers in EU, Like, Aldi, LIDL, Norma, Edeka Non Food, Real store, Kaufland. Last four years they are focusing on Polish market and doing business with Big Star, PBH S.A (Brand QUIOSQUE), BYTOM, all are fashion style and also doing discounting shop TXM through agent.
